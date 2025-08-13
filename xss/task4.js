@@ -1,0 +1,2 @@
+//becoming victim's friend
+
